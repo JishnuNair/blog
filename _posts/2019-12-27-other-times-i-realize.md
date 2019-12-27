@@ -35,7 +35,7 @@ So much more to live for
   
 Other times I realize  
 I am just too fortunate  
-To be loved, have loved  
-To live  
+To be loved, to have loved  
+To  be alive  
 
 [Play](https://www.youtube.com/watch?v=FtuoEtohPv4)
